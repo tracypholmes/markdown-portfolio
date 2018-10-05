@@ -1,0 +1,1 @@
+![Image of Mississippi River Bridge](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c4/Vicksburg_bridge_over_the_mississippi_morning-edit.jpg/800px-Vicksburg_bridge_over_the_mississippi_morning-edit.jpg)
