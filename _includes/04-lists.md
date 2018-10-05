@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+- friends
+- life
+- family
+- SO
+  - whenever I get an SO :tired_face:
+- my new job
