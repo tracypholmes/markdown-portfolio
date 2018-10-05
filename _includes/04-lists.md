@@ -1,0 +1,6 @@
+- friends
+- life
+- family
+- SO
+  - whenever I get an SO :tired_face:
+- my new job
